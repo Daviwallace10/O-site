@@ -5,6 +5,7 @@
 
 ## Início da pandemia
 Confesso que como não estava acostumado com tanto tempo livre e inicialmente acabei levando a quarentena como férias por ficar muito tempo sem fazer nada, muito tempo no celular ou dormindo, ate que eu percebi que deveria aproveitar esse tempo, porque por mais que seja uma situação muito delicada tem um lado bom que é todo esse tempo livre que não era muito comum e a liberdade de poder aproveitar esse tempo como bem entender na medida do possível.
+
 ![oci](https://github.com/Daviwallace10/O-site/blob/master/images.png)
 ![cell](https://github.com/Daviwallace10/O-site/blob/master/download.jfif)
 
