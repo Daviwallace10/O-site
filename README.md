@@ -11,3 +11,8 @@ Confesso que como não estava acostumado com tanto tempo livre e inicialmente ac
 
 ## Atualmente
   Após perceber que deveria otimizar meu tempo, coloquei em prática, **investi mais tempo em mim**, pensei em coisas que queria fazer e antes "não tinha tempo".Começei a me **exercitar** pois havia muito tempo que estava sedentário, depois procurei assuntos que não fazem parte do conteúdo curricular da escola e acabei encontrando um assunto que me interessei muito que é "inteligência social" e **estudei** bastante sobre, aprendi a fazer umas **receitas novas na cozinha**, e **joguei** com meus amigos no tempo livre(coisa que não fazia a um tempo). E ultimamente com a volta as aulas, adaptei essa rotina separando tempo para a escola e voltei a ver umas pessoas que fiquei alguns meses sem ver (claro tomando o máximo de cuidado possível). 
+  
+  ![exerci](https://github.com/Daviwallace10/O-site/blob/master/exerc.jpg)
+  ![is](https://github.com/Daviwallace10/O-site/blob/master/is.jpg)
+  ![coz](https://github.com/Daviwallace10/O-site/blob/master/coz.jpg)
+  ![lol](https://github.com/Daviwallace10/O-site/blob/master/lol.jfif)
